@@ -9,20 +9,18 @@ https://shibagric.com/
 
 https://saas.ethereal.ng/
 
-https://etherealapps.info/login
-
-https://digitalitc.com/
+https://erp.ethereal/login/
 
 http://agrichainx.com/
 
-https://emergingtechnologies.info/
+https://mechampion.com/
 
-https://eastatlanticnetwork.com/
+https://primacess.com
 
-https://adamawachessclub.com/
+https://portal.primacess.com
 
-https://ebookhawker.com/
+https://astonn.co.uk/
 
-https://fgcwosa.org/
+https://aisolana.io
 
 
